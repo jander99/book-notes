@@ -5,4 +5,4 @@
 - Take a moment to remember your own mistakes before criticizing someone else.  
 - Factor in the other person's age and experience.  
 - Admitting your own mistakes can help the other person feel more comfortable and less judged.  
-- Humility and priase will work veritable miracles in human relations.  
+- Humility and praise will work veritable miracles in human relations.  
