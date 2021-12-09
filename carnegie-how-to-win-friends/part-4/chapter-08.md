@@ -1,4 +1,4 @@
-# How to Change People Without Giving Offense or Arousing Resentment #
+# Make the Fault Seem Easy to Correct #
 
 ## Principle: "Use encouragement. Make the fault seem easy to correct." ##
 
