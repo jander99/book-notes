@@ -1,4 +1,4 @@
-# How to Change People Without Giving Offense or Arousing Resentment #
+# Give a Dog a Good Name #
 
 ## Principle: "Give the other person a fine reputation to live up to." ##
 
