@@ -1,4 +1,4 @@
-# Let the oTher Person Save Face #  
+# Let the Other Person Save Face #  
 
 ## Principle: "Let the other person save face." ##  
 
